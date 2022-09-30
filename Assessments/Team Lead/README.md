@@ -1,2 +1,2 @@
-This folder contains the assignments of TEAM Lead - GNANADESIGAN V (4211191061008)
+This folder contains the assignments of Team Lead - GNANADESIGAN V (4211191061008)
 
