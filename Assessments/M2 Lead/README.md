@@ -1,2 +1,2 @@
-This folder contains the assignments of M1 Lead - SANJAY K (4211191061022)
+This folder contains the assignments of M2 Lead - SANJAY K (4211191061022)
 
